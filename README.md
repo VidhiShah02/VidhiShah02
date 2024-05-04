@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **vidhis843@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/ vidhi-shah-28b9481a0](www.linkedin.com/in/ vidhi-shah-28b9481a0)
+- 📄 Know about my experiences [www.linkedin.com/in/vidhi-shah-28b9481a0](www.linkedin.com/in/vidhi-shah-28b9481a0)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
